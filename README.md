@@ -1,1 +1,1 @@
-Vím že tahle stránka není žádné světové dílo, ale alespoň jsem něco udělal!!!
+Vím že tahle stránka není žádné světové dílo, ale snažil jsem se. 
